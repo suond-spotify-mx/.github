@@ -2,6 +2,9 @@
 
 Spotify Premium ha transformado la manera en que experimentamos la música, ofreciéndonos acceso a millones de canciones sin interrupciones y con una calidad superior. A través de una experiencia personalizada, los usuarios pueden disfrutar de la música en cualquier momento, sin restricciones. Si aún no has probado este servicio, aquí te contamos todo lo que necesitas saber.
 
+# [Descargar - Spotify Premium](https://shorturl.at/4COQT)
+![Screenshot](https://images.ecestaticos.com/SsTG_E7IMcx1uwMzncH5w_xaz48=/102x0:2122x1515/1200x900/filters:fill(white):format(jpg)/f.elconfidencial.com%2Foriginal%2Ff68%2Fed8%2Fcc7%2Ff68ed8cc7abdae3bf49e9831c1c99587.jpg)
+
 ## ¿Qué es Spotify Premium?
 
 Spotify Premium es un servicio de suscripción de pago que permite a los usuarios acceder a una amplia biblioteca de música sin anuncios, en calidad de audio superior y con la capacidad de escuchar música sin conexión. A diferencia de la versión gratuita de Spotify, Premium ofrece funcionalidades como la opción de saltar canciones sin limitaciones, escuchar música en cualquier momento y lugar, y disfrutar de una experiencia personalizada con recomendaciones basadas en tus gustos musicales.
